@@ -4,4 +4,4 @@
 ## GVHD: Ts. Nguyễn Văn Huy
 ## Thực hiện: Sv. Nguyễn Thị Xuân Phương - K225480106054
 
-Link thuyết minh: 
+Link thuyết minh: https://youtu.be/HzpD1tCJj0o
